@@ -1,0 +1,1 @@
+A razer gold trust fund account functions as everyother trust fund accounts for receiving and send money, bills payment and everyother financial dealings. once you complete your account registration and activation you will be mail a free credit card. minimum limit for new accout is $50,000 and can be upgraded after 7 days of use to unlimited 
